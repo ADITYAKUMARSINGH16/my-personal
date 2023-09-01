@@ -1,4 +1,4 @@
 # Hi There![hello](https://github.com/ADITYAKUMARSINGH16/my-personal/assets/74896018/19f41cb1-1832-4c43-ae2b-dc8244d9d424) ,Welcome
-![welcome-3d-text-gold-fancy-typography-illustration](https://github.com/ADITYAKUMARSINGH16/my-personal/assets/74896018/439d7f26-08f9-46b6-98f2-dc2319976b37)
+![Screenshot 2023-09-01 202758](https://github.com/ADITYAKUMARSINGH16/my-personal/assets/74896018/82e5fa17-9abf-4258-8267-e8dc76445ec2)
 
  HI  my name is #ADITYA KUMAR SINGH
